@@ -2,7 +2,8 @@
 - 👀 I’m interested in NPC
 - 🌱 I’m currently learning AMONG US
 - 💞️ I’m looking to collaborate on NPC's
-- 📫 How to reach me acca4186@ccpsnet.net/My discord JoshIsSus#5583
+- 📫 How to reach me https://discord.com/channels/@me
+
 - 
 
 <!---
