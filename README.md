@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @JoshIsSus
-- 👀 I’m interested in NPC
-- 🌱 I’m currently learning AMONG US
-- 💞️ I’m looking to collaborate on NPC's
-- 📫 How to reach me https://discord.com/channels/@me
+- 👀 I’m interested in mods and gba roms also NPC
+- 🌱 I’m currently learning piano
+- 💞️ I’m looking to collaborate on ROMS
+- 📫 How to reach me https://discord.com/channels/@me / acca4186@gmail.com
 
 - 
 
